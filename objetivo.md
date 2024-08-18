@@ -35,4 +35,4 @@ O **ConstruAI** se posiciona como uma solução inovadora que une inteligência 
 
 ---
 
-Esta descrição pode ser ajustada conforme o projeto evolui e novas informações ou objetivos são definidos. Se houver mais detalhes ou alterações que você gostaria de adicionar, é só me avisar!
+
